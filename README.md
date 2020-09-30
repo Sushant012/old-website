@@ -1,4 +1,4 @@
 DemocracyOS
 =====================
 
-Changing the tool for a better Democracy
+Changing The Tool For A Better Democracy!
